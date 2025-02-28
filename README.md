@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently studying on National University of Costa Rica.👨‍💻<br>I'm looking laboral experience to expand my knowledge.🌱<br>I'm looking to collaborate with others developers and share experiences.✌️
+I'm currently studying on National University of Costa Rica.👨‍💻<br>I'm looking to collaborate with others developers and share experiences.✌️
 
 
 ## 🌐 Socials:
